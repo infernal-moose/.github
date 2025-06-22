@@ -4,7 +4,7 @@
 
 > **Publishing simplified**
 >
-> Streamline your entire book publishing process\u2014from manuscript to market\u2014with our integrated suite of tools for managing workflows, tracking royalties, and promoting your work.
+> Streamline your entire book publishing process from manuscript to market with our integrated suite of tools for managing workflows, tracking royalties, and promoting your work.
 
 [**Get Started Free**](/signup)
 
